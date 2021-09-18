@@ -1,1 +1,1 @@
-# rsschool-cv
+https://portwavesz.github.io/rsschool-cv/cv
